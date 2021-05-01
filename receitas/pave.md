@@ -8,4 +8,4 @@
 ### Resultado:
 
 - Seu tio vai se tremer, tentar segurar, mas não vai conseguir, e vai lançar a "você quer Pavê ou Pacomê".
-- Fim.
+- Fim. :laughing:
